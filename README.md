@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CJ
-- 👀 I’m interested in progammers
+- 👀 I’m interested in programmers
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on programming with
 - 📫 How to reach me+2348162001072
